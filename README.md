@@ -9,6 +9,7 @@
 
 ![1](https://user-images.githubusercontent.com/58879890/133972801-ec0cb4ab-6bf4-4882-862d-3c2ba73b4be1.PNG)
 
+# TASKS
 ![1](https://user-images.githubusercontent.com/58879890/133972838-31fc8e43-32c0-42d2-b5f2-21f797dce889.PNG)
 
 # SETTINGS
